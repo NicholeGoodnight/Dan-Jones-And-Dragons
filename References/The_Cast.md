@@ -12,7 +12,7 @@ A Warforged with the head of jackal whose jaws are often locked up tight. Serves
 
 ### Played by Nichole (She/Her)
 
-A tanned Tiefling with branch-like horns adorned with flowers and a tail wrapped in thorns. She has purple hair and an outfit suggesting an affinity for nature. She is a part of the Midnight Lotus with a crystal necklace to prove it. Enjoys other people's drama so long as nobody gets physically hurt. She is running away from the Black Hand cult, which she used to be a part of.
+A tanned Tiefling with branch-like horns adorned with flowers and a tail wrapped in thorns. She has purple hair and an outfit suggesting an affinity for nature. She is a part of the Midnight Lotus with a crystal necklace to prove it. Enjoys other people's drama so long as nobody gets physically hurt. She is running away from the Midnight Lotus cult, which she used to be a part of.
 
 ## Gelnek the Valor Bard (He/Him)
 
